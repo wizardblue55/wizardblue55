@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @wizardblue55
-- 👀 I’m interested in I make shit, the good, the bad, and the Ugly
-- 🌱 I’m currently learning Unreal, because my friend forced me to
+- 👀 I’m interested in shit, the good, the bad, and the Ugly
 - 💞️ I’m looking to collaborate on nothing, im boring
 - 📫 How to reach me dont, or look up my discord
 - 😄 Pronouns: 404
